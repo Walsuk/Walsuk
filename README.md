@@ -1,2 +1,2 @@
-- create some..'fan-arts' I'm interested in!
+- I create some..'fan-arts' I'm interested in!
   - likes Southpark or other cartoons and animes 😀
